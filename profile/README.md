@@ -6,7 +6,7 @@ Languages: Supported Over 40 Languages
 
 Features: Real-time Translation, True Wireless Earbuds
 
-Where to Buy: Official Website Only
+Where to Buy: [Official Website Only](https://rebrand.ly/orderkeilinitalkease)
 
 Customer Rating: ⭐⭐⭐⭐½ (4.5/5)
 
